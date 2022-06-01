@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ruryx0
+- 👋 Hi, I’m @ruryx00
 - ༼ つ ◕_◕ ༽つ I'm 14 years old
 - 👨‍🎓 I'm a student
 - 👀 I’m interested in informatics and programming
