@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ruryx00
-- ༼ つ ◕_◕ ༽つ I'm 14 years old
+- ༼ つ ◕_◕ ༽つ I'm 15 years old
 - 👨‍🎓 I'm a student
 - 👀 I’m interested in informatics and programming
 - 🌱 I’m currently learning the basics of programming
